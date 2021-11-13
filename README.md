@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YungLad!
+- 👀 I’m interested in Coding.
+- 🌱 I’m currently learning more on How to Code Discord Bots.
+- 💞️ I’m looking to collaborate on Nothing, I'm not looking to collaborate with anyone at this moment
+- 📫 You can reach me via Discord. My Username is YungLad#1461.
